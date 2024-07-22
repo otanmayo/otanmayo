@@ -2,4 +2,4 @@
 - I’m interested in a carrer in Data Science and curently looking for a job in the field.
 - Why Data Science? It's because I have always been an observer keeping tab on things in my mind and then deriving coclusions from all that data in my mind. The ability of Data to present facts have always fascinated me. One day I found out that there is a whole branch for stuff like this and then I decided to pursue for a profession in data science because it aligns with my personality.
 - You can reach me by dropping me an email at metatanmay@outlook.com I will be more than happy to see you around.
-- For fun I like venture on trails less travelled and go hiking sometimes, I love pets a lot. I like calm and collected people and love to create/live a harmonious enviornment for everyone to enjoy.
+- For fun I like to venture on trails less travelled and go hiking sometimes, I love pets a lot. I like calm and collected people and love to create/live a harmonious enviornment for everyone to enjoy.
